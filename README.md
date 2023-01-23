@@ -1,6 +1,6 @@
 ![Computer Engineer || Web Developer || Freelancer](https://pbs.twimg.com/profile_banners/983312112083550209/1660763544/600x200)
 ### Hi there👋, I'm Farabi Shohel
-#### Computer Engineer || Web Developer || Freelancer
+#### Computer Engineer || Web Developer || Wordpress Expert || Freelancer
 
 HI, I’m Professional Front-end Web developer & Email Marketer [Mailchimp] with over two years of professional experience in the Design & Development industry. I am an expert in Frontend Development & Email Marketing [Mailchimp]. I care deeply about creating World-class, useful and beautiful products that help people and make a difference. I have always been fashionable towards my work And I love my work very much. <3
 
